@@ -42,9 +42,12 @@ ii)  SQUARE WAVE INPUT
 
 ## TABULATION:
 
+![WhatsApp Image 2025-11-28 at 6 14 29 PM](https://github.com/user-attachments/assets/d34db124-e231-4acb-817c-93f927ef3c1b)
 
 ## GRAPH:
+![WhatsApp Image 2025-11-28 at 6 14 28 PM (2)](https://github.com/user-attachments/assets/7e903b9a-ef7d-4151-8e41-561b3ecd3092)
 
+![WhatsApp Image 2025-11-28 at 6 14 28 PM (3)](https://github.com/user-attachments/assets/fcaf0ca8-9f5d-4e81-a933-2c5573a9833e)
 
 ## RESULT:
 
